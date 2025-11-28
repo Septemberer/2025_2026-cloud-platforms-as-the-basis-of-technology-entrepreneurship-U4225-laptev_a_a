@@ -1,0 +1,1 @@
+# 2025_2026-cloud-platforms-as-the-basis-of-technology-entrepreneurship-U4225-laptev_a_a
